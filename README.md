@@ -33,10 +33,10 @@ genshin impact, zenless zone zero, arknights: endfield, silent hill, call of dut
 tengoku daimakyou, shiguang dailiren, fate, panties and stockings with garterbelt, killeo baedeulo, sanbandori gokurakugai, viral hit, code name: anastasia.
 
 **i support ships:**
-sukuita, sukugo, fushiita, phaistelle, phaidei, castordei, sampkle, scarabedo, scararina, wriovia, huxiao, tordedd. (I'll list them later if I remember.)
+sukuita (exception), sukugo, phaistelle, tordedd, future edd/edd, scarabedo, sampkle.
 
 **i don't support ships:**
-sukufushi, sukurozu, sukugo (sorry but just no.), inuokko, phairene, sunturine, renheng, ciphlaea, zhongchi, chliyuu, tomtord, tordmatt. (I'll list them later if I remember.)
+sukufushi, sukurozu, phairene, renheng, zhongchi.
 
 ## DO NOT INTERACT, IT YOU:  🍃
 <div id="header" align="left">
