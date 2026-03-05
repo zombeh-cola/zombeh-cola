@@ -1,9 +1,9 @@
 <div id="header" align="center">
-<img src="https://media4.giphy.com/media/v1.Y2lkPTc5MGI3NjExcnluMXMxa21iZjM0M3JoMWZ5NTBtcHZjdDYxZ2RwZGVjc3hjYWdrOCZlcD12MV9pbnRlcm5hbF9naWZfYnlfaWQmY3Q9Zw/0iqQC3wsWKRuVStsvB/giphy.gif" width="700"/>
+<img src="https://media3.giphy.com/media/v1.Y2lkPTc5MGI3NjExeHpjanRmamI3Ymw1Z2lqbHkyaGx1amh3c2thMzdsN290MDRhcnlpbiZlcD12MV9pbnRlcm5hbF9naWZfYnlfaWQmY3Q9Zw/LZH7GP4Q5BitFqPMll/giphy.gif" width="700"/>
 <div id="header" align="center">
 ————————————————————————————————————————————
 <div id="header" align="center">
-𝗻𝗲𝘄 𝘀𝘁𝗮𝘁𝗶𝗼𝗻 𝗶𝘀 . . . 𝗱𝗮𝗿𝗸 𝗶𝗻𝘁𝗲𝗿𝗻𝗲𝘁. 𝘆𝗼𝘂 𝗵𝗮𝘃𝗲 𝗯𝗲𝗲𝗻 𝘄𝗮𝗿𝗻𝗲𝗱. 🩸
+𝗻𝗲𝘄 𝘀𝘁𝗮𝘁𝗶𝗼𝗻 𝗶𝘀 . . . 𝗱𝗮𝗿𝗸 𝗶𝗻𝘁𝗲𝗿𝗻𝗲𝘁. 𝘆𝗼𝘂 𝗵𝗮𝘃𝗲 𝗯𝗲𝗲𝗻 𝘄𝗮𝗿𝗻𝗲𝗱. 💚
 <div id="header" align="center">
 ————————————————————————————————————————————
 <div id="header" align="left">
@@ -19,7 +19,7 @@
 семейное положение: в активном поиске.
 
 
-## FANDOMS. 🌹
+## FANDOMS. 🥝
 <div id="header" align="left">
 
 **main fandom:** jujutsu kaisen, gachiakuta, eddsworld, honkai: star rail.
@@ -38,7 +38,7 @@ sukuita, sukugo, fushiita, phaistelle, phaidei, castordei, sampkle, scarabedo, s
 **i don't support ships:**
 sukufushi, sukurozu, sukugo (sorry but just no.), inuokko, phairene, sunturine, renheng, ciphlaea, zhongchi, chliyuu, tomtord, tordmatt. (I'll list them later if I remember.)
 
-## DO NOT INTERACT, IT YOU: 🌹
+## DO NOT INTERACT, IT YOU:  🍃
 <div id="header" align="left">
 ⤷ культурно-фандомные: анти-шипперы, канон-в7йны, полишиппинг-фобия, хейт рейрпейры, антисня, антиселфшипперы / осканонщики, собственники (ноншейры), которые запрещают поддерживать дабллов, крабовая ментальность.
   
@@ -52,7 +52,7 @@ sukufushi, sukurozu, sukugo (sorry but just no.), inuokko, phairene, sunturine, 
 
 ⤷ отдельная категория, не входящая в основные разделы: не общайтесь со мной, если вы поддерживаете определенные пейринги (например: сукуфуши & сукуго & сукурозу), однако, не упоминайте при мне в любых проявлениях, ибо эти пейринги мне некомфортны и могу словить триггер ;; если ты не переносишь черный юмор и шутки про пятки, жир.
 
-##  ICE-LIST: 🌹
+##  ICE-LIST: 💚
 ⤷ таковых дни критериев нет, в основном база: однако, не общаюсь, если вам меньше 18 лет из-за разницы в взглядах и восприятиях на жизнь, НО! если правильно выбирать друзей и находить их адекватными и зрелыми, то может сделаю исключение ;; затрагивание политической деятельности.
 
 ⤷ я — селектив шернинг, выборочно / нейтрально отношусь к дабблам, с кем-то могу общаться, а кого-то избегать ради своего комфорта. к тому же я не против их фанбазы, но настоящий возлюбленный - я.
