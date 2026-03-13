@@ -10,7 +10,7 @@
 
 добро пожаловать в цифровое пространство — здесь хранятся данные, но будьте осторожны: не все тайны стоит раскрывать. здесь я буду рассказывать о себе. 
 
-maledictus . kyosan :: she / her & he / his :: 31.07 & 23 y.o :: mbti & typology :: infp / infj, 4w5, so4, 459, melancholic choleric. обращаться только "на ты".
+maledictus . malemaru . malyar :: she / her & he / his :: 31.07 & 23 y.o :: mbti & typology :: infp / infj, 4w5, so4, 459, melancholic choleric. обращаться только "на ты".
 
 <div id="header" align="left">
 
