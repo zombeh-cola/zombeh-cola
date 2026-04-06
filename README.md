@@ -9,7 +9,6 @@
 <img src="https://64.media.tumblr.com/c476b7f39492de248dea120d6337333b/dc6d110feff15fb8-08/s1280x1920/13fbfba1a54e70fe7f01bb06be98673df0d3e033.pnj"1000"/>
   </div>
 
-#
   <div id="header" align="center">
 𝗵𝗲𝗹𝗹𝗼, 𝗺𝘆 𝗼𝗹𝗱 𝗳𝗿𝗶𝗲𝗻𝗱! 
 <div id="header" align="center">
