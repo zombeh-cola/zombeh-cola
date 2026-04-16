@@ -23,8 +23,8 @@
 
 ➥ 𝗺𝗮𝗶𝗻 𝗳𝗮𝗻𝗱𝗼𝗺: jujutsu kaisen, honkai : star rail, eddsworld.
 <div id="header" align="center">
-<img src="https://64.media.tumblr.com/94bc5aa74a91b5847baf23b1e71b7061/851a1ef7d7001340-78/s100x200/ecdd4b1e122b88a37af12aa32118c8182ea56359.gifv"1000"/>
-<img src="https://64.media.tumblr.com/9b95a089c9c5cf2b6cdfd0bec1701749/963968c3007d2b52-da/s100x200/3c35539960f4a9bf8742aabf815b84a8a01346e1.gifv"1000"/>
+<img src="https://64.media.tumblr.com/8fbca61abcddde3a22943a838dd7b315/851a1ef7d7001340-02/s100x200/a56a3a2346fe397d779387986ea0c86970c7883b.pnj"1000"/>
+<img src="https://64.media.tumblr.com/9771ba05320a21dc3bb70a17564ac221/963968c3007d2b52-8a/s100x200/eaa81949665e36721819f87a5c890c58d20a6782.pnj"1000"/>
 <div id="header" align="center">
 
   <div id="header" align="center">
