@@ -23,9 +23,9 @@
 
 ➥ 𝗺𝗮𝗶𝗻 𝗳𝗮𝗻𝗱𝗼𝗺: jujutsu kaisen, honkai : star rail, eddsworld.
 <div id="header" align="center">
-<img src="https://64.media.tumblr.com/d822bad4ca7d57614f2cd84ef47d95ac/851a1ef7d7001340-8e/s100x200/4f37c273c9ec058891d61a204d6c32e143ac2f85.pnj"1000"/>
-<img src="https://64.media.tumblr.com/7bc4de4d6dcceb8647feef905a918dec/963968c3007d2b52-bd/s100x200/6b18119ab3b4503ba86e9b54eb22e2f6c69cf0e8.pnj"1000"/>
-
+<img src="https://64.media.tumblr.com/94bc5aa74a91b5847baf23b1e71b7061/851a1ef7d7001340-78/s100x200/ecdd4b1e122b88a37af12aa32118c8182ea56359.gifv"1000"/>
+<img src="https://64.media.tumblr.com/9b95a089c9c5cf2b6cdfd0bec1701749/963968c3007d2b52-da/s100x200/3c35539960f4a9bf8742aabf815b84a8a01346e1.gifv"1000"/>
+<div id="header" align="center">
 
   <div id="header" align="center">
 знакомиться я не против, но комфортнее всего мне в малознакомых компаниях. у меня трудности с доверием и коммуникацией, и я медленно привыкаю к новым людям. с новыми людьми мне сложно начинать и заканчивать разговор, поэтому не ждите от меня инициативы первым шагом. социализация — не мое. обсуждаю в основном творчество, фандом, персонажей и бытовуху.
