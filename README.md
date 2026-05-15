@@ -21,7 +21,7 @@
   
 23 года, она & ее / он & его, infj, 4w3, so3/sp9/so5 ;; демисексуал & серо-романтик ;; obsessed w tordedd & phainon !
 
-➥ 𝗺𝗮𝗶𝗻 𝗳𝗮𝗻𝗱𝗼𝗺: jujutsu kaisen, honkai : star rail, eddsworld.
+➥ 𝗺𝗮𝗶𝗻 𝗳𝗮𝗻𝗱𝗼𝗺: jujutsu kaisen, honkai : star rail, wuthering waves, eddsworld.
 <div id="header" align="center">
 <img src="https://64.media.tumblr.com/8fbca61abcddde3a22943a838dd7b315/851a1ef7d7001340-02/s100x200/a56a3a2346fe397d779387986ea0c86970c7883b.pnj"1000"/>
 <img src="https://64.media.tumblr.com/9771ba05320a21dc3bb70a17564ac221/963968c3007d2b52-8a/s100x200/eaa81949665e36721819f87a5c890c58d20a6782.pnj"1000"/>
