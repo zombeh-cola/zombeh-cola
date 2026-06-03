@@ -19,7 +19,7 @@
 обращайтесь ко мне как хотите: мару / малемару / зомби кола. мне не принципиально.
 <div id="header" align="center">
   
-23 года, она & ее / он & его, infj, 4w3, so3/sp9/so5 ;; демисексуал & серо-романтик ;; obsessed w tordedd & phainon !
+23 года, она & ее / он & его, infj, 4w3, so3/sp9/so5 ;; демисексуал & аромантик ;; obsessed w tordedd & phainon !
 
 ➥ 𝗺𝗮𝗶𝗻 𝗳𝗮𝗻𝗱𝗼𝗺: jujutsu kaisen, honkai : star rail, wuthering waves, eddsworld.
 <div id="header" align="center">
