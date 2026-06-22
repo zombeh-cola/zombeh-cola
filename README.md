@@ -21,7 +21,13 @@
   
 23 года, она & ее / он & его, infj, 4w3, so3/sp9/so5 ;; демисексуал & аромантик ;; obsessed w tordedd & phainon !
 
-➥ 𝗺𝗮𝗶𝗻 𝗳𝗮𝗻𝗱𝗼𝗺: honkai: star rail, wuthering waves, eddsworld.
+| **deploys & locations**  | **data & selections** |
+| ------------- | ------------- |
+| **pony town:** i spend most of my time on the russian server #1, on the eddsworld territory under the market. i hardly ever leave the zone.  | **languages:** russian (native), english (basic american format / translator)  |
+| **interactions:** i dont mind being friends, but keep a polite distance if we're strangers. i can't stand people who block my space. or read the information before we become friends and see if you'll be on the dni-list. | **audio data:** i'm a music lover, but I have a limited choice in music. i listen to whatever i like.  |
+| **skins:** do not copy my designs or replicate my skins. i value original creativity. just no. | **comms**: i'm open to everyone. for friendship or collaboration, please contact me through the anonymous telegram bot; the link is under my profile. i'm happy to talk about our hobbies or share your work. it's true that in conversation i can seem rude, i make unpleasant, but good-natured jokes. |
+| **supporter**: i don't help with the limited participant limit in the group or with the slot selection. however, I am always in a group that is limited to certain people in close party. |
+
 <div id="header" align="center">
 <img src="https://64.media.tumblr.com/8fbca61abcddde3a22943a838dd7b315/851a1ef7d7001340-02/s100x200/a56a3a2346fe397d779387986ea0c86970c7883b.pnj"1000"/>
 <img src="https://64.media.tumblr.com/9771ba05320a21dc3bb70a17564ac221/963968c3007d2b52-8a/s100x200/eaa81949665e36721819f87a5c890c58d20a6782.pnj"1000"/>
