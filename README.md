@@ -16,11 +16,19 @@
 
 ## 𝖺𝖻𝗈𝗎𝗍 𝗆𝖾 !
 <div id="header" align="center">
-обращайтесь ко мне как хотите: мару / малемару / зомби кола. мне не принципиально.
+сall me whatever you want: maru / malemaru / zombie cola. It doesn't matter to me. 
+23 years old, she & he / he & his, infj, 4w3, so3/sp9/so5 ;; obsessed w tordedd & phainon !
 <div id="header" align="center">
-  
-23 года, она & ее / он & его, infj, 4w3, so3/sp9/so5 ;; демисексуал & аромантик ;; obsessed w tordedd & phainon !
+<div id="header" align="center">
+<div id="header" align="center">
 
+  
+i'm not against meeting new people, but i feel most comfortable in the company of strangers. i have difficulty trusting and communicating, and i warm up to new people slowly. i have trouble starting and ending conversations with new people, so don't expect me to take the first step. socializing isn't my thing. i mostly discuss creativity, fandom, characters, and everyday life.
+
+
+<div id="header" align="center">
+
+  
 | **deploys & locations**  | **data & selections** |
 | ------------- | ------------- |
 | **pony town:** i spend most of my time on the russian server #1, on the eddsworld territory under the market. i hardly ever leave the zone.  | **languages:** russian (native), english (basic american format / translator)  |
@@ -33,18 +41,5 @@
 <img src="https://64.media.tumblr.com/9771ba05320a21dc3bb70a17564ac221/963968c3007d2b52-8a/s100x200/eaa81949665e36721819f87a5c890c58d20a6782.pnj"1000"/>
 <div id="header" align="center">
 
-  <div id="header" align="center">
-знакомиться я не против, но комфортнее всего мне в малознакомых компаниях. у меня трудности с доверием и коммуникацией, и я медленно привыкаю к новым людям. с новыми людьми мне сложно начинать и заканчивать разговор, поэтому не ждите от меня инициативы первым шагом. социализация — не мое. обсуждаю в основном творчество, фандом, персонажей и бытовуху.
-<div id="header" align="center">
-
 ## 𝖽𝗇𝗂-𝗅𝗂𝗌𝗍 !
-
-➥ базовый дни лист, г2мофобия & г2терофобия, фети4изация и гиперкексулизация (в меру), анти-шипперы (в любом виде), полишиппинг-фобия, доксеры, люди из прошлого (редкие исключения).
-
-➥ обесценивание чувств / проблем / достижений / труда / внешности и т.д; непрошенные советы, пересечение личных границ, навешивание ярлыков, переход на личности, шантаж, виктимблейминг в конфликте, алекситимия, триангуляция, гендерные стереотипы в конфликте, перекладывание ответственности (+/).
-
-➥ сторонники травли, провакционные никнеймы (не позорьте пж), сторонники изн4сил7вания или люди, оправдывающие н2силие, фанаты тбатф.
-
-➥ имеете против черного & грязного юмора по типу пяточки и толстых людей.
-
-➥ касательно pony town: не помогаю с лимитом для карты, не дарю саппорт просто так, вообще не выпрашивайте у меня ничего! если у вас возникли вопросы - вы можете написать мне в виспер либо написать через бота в телеграмм - [@maledictus_bot](https://t.me/maledictus_bot). я 24/7 сижу афк, либо со своими друзьями, поэтому я не горю желанием с кем-то познакомиться, но я не прям против к слову.
+basic dni list, h7mophobia & h7terophobia, devaluation of feelings / problems / achievements / work / appearance, etc; crossing personal boundaries, labeling, getting personal, people from the past, support tbatf, you have an objection to black and toilet humor.
