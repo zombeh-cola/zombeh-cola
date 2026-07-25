@@ -41,7 +41,7 @@ i'm not against meeting new people, but i feel most comfortable in the company o
   
 | 🚫 DNI category and trigger warning. |
 |------------------|
-| basic dni list, h7moph7bia & heteroph7bia, fetishization and hypersexualization (possible, but in moderation), r7ssophobes & ukr7phobes, anti-shippers (in any form), polyshipping phobia. |
+| basic dni list, h7moph7bia & heteroph7bia, f7tishization and hyper3exualization (possible, but in moderation), r7ssophobes & ukr7phobes, anti-shippers (in any form), polyshipping-phobia. |
 | people who hinder others' success often resort to sarcastic remarks and actions aimed at reducing motivation. Please respect other people's boundaries and their work. |
 | the same as with the second point: devaluing feelings / issues of achievements/work/appearance, etc., everyone has their own life, their own resources and their own standards, and such statements only demonstrate an unwillingness to acknowledge someone else's reality. |
 <br><br>
