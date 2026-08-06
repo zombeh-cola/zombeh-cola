@@ -18,7 +18,7 @@
 
 | Фото 1 | Фото 2 |
 |--------|--------|
-| <img src="https://i.yapx.ru/eEzyK.png/200/200"> | <img src="https://placekitten.com/150/150"> |
+| <img src="https://i.yapx.ru/eEzyK.png/20/20"> | <img src="https://i.yapx.ru/eEz8T.png/50/50"> |
 
 
   
