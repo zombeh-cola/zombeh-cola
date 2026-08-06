@@ -16,9 +16,9 @@
 <div id="header" align="left">
 
 
-| Фото 1 | Фото 2 |
+|°˖𓍢ִ໋🍃✿°.💚⋆|‧₊ᵎᵎ🍓⋅°✮|
 |--------|--------|
-| <img src="https://i.yapx.ru/eEzyK.png/20/20"> | <img src="https://i.yapx.ru/eEz8T.png/50/50"> |
+| <img src="https://i.yapx.ru/eE0BQ.png/50/50"> | <img src="https://i.yapx.ru/eEz8T.png/50/50"> |
 
 
   
