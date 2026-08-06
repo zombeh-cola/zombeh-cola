@@ -24,7 +24,7 @@
   
 |── ★ ˙🥝 ̟ !!|࣪˖ ִֶָ 🍓་༘|
 |--------|--------|
-| <img src="https://i.yapx.ru/eE0Fa.png/50/50"> | <img src="https://i.yapx.ru/eE0W5.png/50/50"> |
+| <img src="https://i.yapx.ru/eE1ya.png/50/50"> | <img src="https://i.yapx.ru/eE0W5.png/50/50"> |
  </div>
 <table cellspacing="0" cellpadding="0">
   <tr>
