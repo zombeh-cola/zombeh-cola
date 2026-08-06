@@ -22,7 +22,7 @@
   </tr>
 </table>
   
-|°˖𓍢ִ໋🍃✿°.💚⋆|‧₊ᵎᵎ🍓⋅°✮|
+|── ★ ˙🥝 ̟ !!|࣪˖ ִֶָ 🍓་༘|
 |--------|--------|
 | <img src="https://i.yapx.ru/eE0Fa.png/50/50"> | <img src="https://i.yapx.ru/eE0W5.png/50/50"> |
  </div>
@@ -43,27 +43,22 @@
   
 | **deploys & locations**  | **data & selections** |
 | ------------- | ------------- |
-| **pony town:** i spend most of my time on the russian server #1, on the eddsworld territory under the market. i hardly ever leave the zone.  | **languages:** russian (native), english (basic american format / translator)  |
+| **pony town:** i spend most of my time on the russian server #1, on the eddsworld zone under the market. i hardly ever leave the zone.  | **languages:** russian (native), english (basic american format / translator)  |
 | **interactions:** i dont mind being friends, but keep a polite distance if we're strangers. i can't stand people who block my space. or read the information before we become friends and see if you'll be on the dni-list. | **audio data:** i'm a music lover, but I have a limited choice in music. i listen to whatever i like.  |
-| **skins:** do not copy my designs or replicate my skins. i value original creativity. just no. | **comms**: i'm open to everyone. for friendship or collaboration, please contact me through the anonymous telegram bot; the link is under my profile. i'm happy to talk about our hobbies or share your work. it's true that in conversation i can seem rude, i make unpleasant, but good-natured jokes. |
+| **skins:** do not copy my designs or replicate my skins. i value original creativity. just no. | **comms**: i'm open to everyone. for friendship or collaboration, please contact me through the [anonymous telegram bot](https://t.me/maledictus_bot); the link is under my profile. i'm happy to talk about our hobbies or share your work. it's true that in conversation i can seem rude, i make unpleasant, but good-natured jokes. |
 | **supporter**: i don't help with the limited participant limit in the group or with the slot selection. however, I am always in a group that is limited to certain people in close party. |
 
-<br><br>
+<div id="header" align="center">
+<img src="https://64.media.tumblr.com/8c3de72ee061951b22bc5fc2346e2f38/1dfd6bbb2ebfe544-88/s2048x3072/44eaa3114d1e028dc7130b42663228e7f993afd5.pnj"700"/>
 
-|°˖𓍢ִ໋🍃✿°.💚⋆|‧₊ᵎᵎ🍓⋅°✮|
+|⋆˙⟡|ᡕᠵデᡁࠣ亠|
 |--------|--------|
-| <img src="[https://i.yapx.ru/eE1NZ.png](https://i.yapx.ru/eE1W3.png)/50/50"> | <img src="https://i.yapx.ru/eE1NZ.png/50/50"> |
+| <img src="https://i.yapx.ru/eE1W3.png/50/50"> | <img src="https://i.yapx.ru/eE1NZ.png/50/50"> |
  </div>
   
-| 🚫 DNI category and trigger warning. |
-|------------------|
-| basic dni list, h7moph7bia & heteroph7bia, f7tishization and hyper3exualization (possible, but in moderation), r7ssophobes & ukr7phobes, anti-shippers (in any form), polyshipping-phobia. |
-| people who hinder others' success often resort to sarcastic remarks and actions aimed at reducing motivation. Please respect other people's boundaries and their work. |
-| the same as with the second point: devaluing feelings / issues of achievements/work/appearance, etc., everyone has their own life, their own resources and their own standards, and such statements only demonstrate an unwillingness to acknowledge someone else's reality. |
-<br><br>
 
 | ❄️ 𝘁𝗵𝗶𝗻 𝗶𝗰𝗲. |
 |------------------|
 | there are no such criteria, basically everything is basic. however, if you are under 18, then forgive me, due to differences in views and perceptions of life. BUT! I make an exception for adequate and sensible guys with whom I have a common language. if i'm interested in you as a person, age will not be a barrier. :3 |
-| if you're a fan of tomtord, i'm open to meeting you and will never limit your love for this ship, but please don't force your opinion on me, as my heart is forever occupied with tordedds. overall, i'm tolerant of other pairings from various fandoms. |
+| if you're a fan of **tomtord**, i'm open to meeting you and will never limit your love for this ship, but please don't force your opinion on me, as my heart is forever occupied with tordedds. overall, i'm tolerant of other pairings from various fandoms. |
 | TBATF fans. the comic itself makes me wary because of its excessive cruelty, but i am not against meeting and making friends with those who create or read it. however, with caution, i will take a closer look. |
