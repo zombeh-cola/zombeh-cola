@@ -1,11 +1,11 @@
 # ☭ RED ARMY ARC
 
 <div id="header" align="center">
-<img src="https://64.media.tumblr.com/1d5e4c73e42cca3178bed1439c748830/26aa773e7989bf3f-93/s2048x3072/8a0d868f893239a19d70ef75b5acf409183896f8.gifv"1000"/>
+<img src="https://64.media.tumblr.com/1d5e4c73e42cca3178bed1439c748830/26aa773e7989bf3f-93/s2048x3072/8a0d868f893239a19d70ef75b5acf409183896f8.gifv"700"/>
 <div id="header" align="center">
 <img src="https://i.yapx.ru/eEyeA.png></a>"1000"/>
 <div id="header" align="center">
-<img src="https://64.media.tumblr.com/1d5e4c73e42cca3178bed1439c748830/26aa773e7989bf3f-93/s2048x3072/8a0d868f893239a19d70ef75b5acf409183896f8.gifv"1000"/>
+<img src="https://64.media.tumblr.com/1d5e4c73e42cca3178bed1439c748830/26aa773e7989bf3f-93/s2048x3072/8a0d868f893239a19d70ef75b5acf409183896f8.gifv"700"/>
   </div>
   <div id="header" align="center">
 𝗵𝗲𝘆, 𝗳𝗿𝗶𝗲𝗻𝗱! 𝗰𝗼𝗺𝗲 𝗶𝗻, 𝗯𝘂𝘁 𝗻𝗼 𝘀𝘂𝗱𝗱𝗲𝗻 𝗺𝗼𝘃𝗲𝗺𝗲𝗻𝘁𝘀 𝗮𝗻𝗱 𝘄𝗶𝘁𝗵𝗼𝘂𝘁 𝗺𝘆 𝗰𝗼𝗹𝗮. 
@@ -19,7 +19,8 @@
 |°˖𓍢ִ໋🍃✿°.💚⋆|‧₊ᵎᵎ🍓⋅°✮|
 |--------|--------|
 | <img src="https://i.yapx.ru/eE0Fa.png/50/50"> | <img src="https://i.yapx.ru/eE0W5.png/50/50"> |
-
+<div id="header" align="center">
+<img src="https://64.media.tumblr.com/c9ee8cc1927152f9d2efd44063209940/26aa773e7989bf3f-c0/s2048x3072/ede886309d91bce15a532735a74adf102e9359ce.pnj"700"/>
 
   
 сall me whatever you want.
