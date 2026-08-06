@@ -3,7 +3,7 @@
 <div id="header" align="center">
 <img src="https://64.media.tumblr.com/bb2aa6ef2298aea0d798c0881915b3fb/dc6d110feff15fb8-a2/s1280x1920/b5efefff79778ba1ba967385f85bf10ef8924cbb.pnj"1000"/>
 <div id="header" align="center">
-<img src="https://sun9-59.userapi.com/s/v1/ig2/XGWWvb_-oejcHVCP8mYdWPK_PGhNaJ4pmNFxC9V75HI7Su992A3bDADcHoI1S_mX9lvNqkPRMP9aW_MHP7dpWwh9.jpg?quality=95&as=32x9,48x14,72x20,108x30,160x45,240x68,360x102,480x136,540x152,640x181,720x203,1080x305,1280x361,1440x407,2316x654&from=bu&u=lVXFLdMYU_LsA4kSdR7KwipP7WIFX9mobr0jlSYsgUw&cs=2316x0"1000"/>
+<img src="https://ru.cdn.pixsafe.online/albums/R3aif/photo2026-03-2722-27-39_yZwin.png></a>"1000"/>
 <div id="header" align="center">
 <img src="https://64.media.tumblr.com/c476b7f39492de248dea120d6337333b/dc6d110feff15fb8-08/s1280x1920/13fbfba1a54e70fe7f01bb06be98673df0d3e033.pnj"1000"/>
   </div>
