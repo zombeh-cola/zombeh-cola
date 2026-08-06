@@ -34,14 +34,6 @@
   </tr>
 </table>
   
-сall me whatever you want.
-𝗺̲𝗮̲𝗿̲𝘂̲ / 𝗺̲𝗮̲𝗹̲𝗲̲𝗺̲𝗮̲𝗿̲𝘂̲ / 𝘇̲𝗼̲𝗺̲𝗯̲𝗲̲𝗵̲ 𝗰̲𝗼̲𝗹̲𝗮̲
-it doesn't matter to me. 
-<br><br>
-preferred pronouns are 𝘀𝗵𝗲 / 𝗵𝗲𝗿 & 𝗵𝗲 / 𝗵𝗶𝘀.
-  <br><br>
-i'm not against meeting new people, but i feel most comfortable in the company of strangers. i have difficulty trusting and communicating, and i warm up to new people slowly. i have trouble starting and ending conversations with new people, so don't expect me to take the first step. socializing isn't my thing. i mostly discuss creativity, fandom, characters, and everyday life.
-<div id="header" align="center">
   <br><br>
 🎧 𝗠𝗮𝗶𝗻 𝘁𝗵𝗲𝗺𝗲: 𝗳𝗲𝗺𝘁𝗮𝗻𝘆𝗹 - 𝗟𝗢𝗩𝗘𝗦𝗜𝗖𝗞, 𝗖𝗔𝗡𝗡𝗜𝗕𝗔𝗟!
 <div id="header" align="center">
