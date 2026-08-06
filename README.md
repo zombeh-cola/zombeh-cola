@@ -18,7 +18,7 @@
 
 |°˖𓍢ִ໋🍃✿°.💚⋆|‧₊ᵎᵎ🍓⋅°✮|
 |--------|--------|
-| <img src="https://i.yapx.ru/eE0Fa.png/50/50"> | <img src="https://i.yapx.ru/eE0TT.png/50/50"> |
+| <img src="https://i.yapx.ru/eE0Fa.png/50/50"> | <img src="https://i.yapx.ru/eE0UK.png/50/50"> |
 
 
   
