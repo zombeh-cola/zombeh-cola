@@ -14,17 +14,25 @@
 
 ## 𝖺𝖻𝗈𝗎𝗍 𝗆𝖾 !
 <div id="header" align="left">
-
-
+<table cellspacing="0" cellpadding="0">
+  <tr>
+    <td><img src="https://64.media.tumblr.com/17650fbf2c67bf0effb1d00e3bf96e9a/e6a1c3e9cad0c6a1-ca/s2048x3072/dbf8d99d444b9dce8399ef89539a981c9ee4b49a.pnj" width="700"></td>
+    <td><img src="https://64.media.tumblr.com/1d61506e00721a235d8e1b97faa1535a/b15685f0f23b828e-c8/s2048x3072/f07de301ec4606665a2d482296e5bd4f39182e27.pnj" width="700"></td>
+    <td><img src="https://64.media.tumblr.com/17650fbf2c67bf0effb1d00e3bf96e9a/e6a1c3e9cad0c6a1-ca/s2048x3072/dbf8d99d444b9dce8399ef89539a981c9ee4b49a.pnj" width="700"></td>
+  </tr>
+</table>
+  
 |°˖𓍢ִ໋🍃✿°.💚⋆|‧₊ᵎᵎ🍓⋅°✮|
 |--------|--------|
 | <img src="https://i.yapx.ru/eE0Fa.png/50/50"> | <img src="https://i.yapx.ru/eE0W5.png/50/50"> |
-<div id="header" align="center">
-<img src="https://64.media.tumblr.com/17650fbf2c67bf0effb1d00e3bf96e9a/e6a1c3e9cad0c6a1-ca/s2048x3072/dbf8d99d444b9dce8399ef89539a981c9ee4b49a.pnj"700"/>
-<div id="header" align="center">
-<img src="https://64.media.tumblr.com/1d61506e00721a235d8e1b97faa1535a/b15685f0f23b828e-c8/s2048x3072/f07de301ec4606665a2d482296e5bd4f39182e27.pnj"700"/>
-<div id="header" align="center">
-<img src="https://64.media.tumblr.com/17650fbf2c67bf0effb1d00e3bf96e9a/e6a1c3e9cad0c6a1-ca/s2048x3072/dbf8d99d444b9dce8399ef89539a981c9ee4b49a.pnj"700"/>
+ </div>
+<table cellspacing="0" cellpadding="0">
+  <tr>
+    <td><img src="https://64.media.tumblr.com/17650fbf2c67bf0effb1d00e3bf96e9a/e6a1c3e9cad0c6a1-ca/s2048x3072/dbf8d99d444b9dce8399ef89539a981c9ee4b49a.pnj" width="700"></td>
+    <td><img src="https://64.media.tumblr.com/e766ef2c63af2b10cd476da55274b50c/b15685f0f23b828e-64/s2048x3072/9320f39936a810843dfc3b5570512433b04a66a1.pnj" width="700"></td>
+    <td><img src="https://64.media.tumblr.com/17650fbf2c67bf0effb1d00e3bf96e9a/e6a1c3e9cad0c6a1-ca/s2048x3072/dbf8d99d444b9dce8399ef89539a981c9ee4b49a.pnj" width="700"></td>
+  </tr>
+</table>
   
 сall me whatever you want.
 𝗺̲𝗮̲𝗿̲𝘂̲ / 𝗺̲𝗮̲𝗹̲𝗲̲𝗺̲𝗮̲𝗿̲𝘂̲ / 𝘇̲𝗼̲𝗺̲𝗯̲𝗲̲𝗵̲ 𝗰̲𝗼̲𝗹̲𝗮̲
