@@ -8,13 +8,20 @@
 <img src="https://64.media.tumblr.com/1d5e4c73e42cca3178bed1439c748830/26aa773e7989bf3f-93/s2048x3072/8a0d868f893239a19d70ef75b5acf409183896f8.gifv"1000"/>
   </div>
   <div id="header" align="center">
-𝗵𝗲𝗹𝗹𝗼, 𝗺𝘆 𝗼𝗹𝗱 𝗳𝗿𝗶𝗲𝗻𝗱! 
-<div id="header" align="center">
-добро пожаловать в цифровое пространство, где я немножко о себе рассказываю, прежде чем подружиться со мной!
-
+𝗵𝗲𝘆, 𝗳𝗿𝗶𝗲𝗻𝗱! 𝗰𝗼𝗺𝗲 𝗶𝗻, 𝗯𝘂𝘁 𝗻𝗼 𝘀𝘂𝗱𝗱𝗲𝗻 𝗺𝗼𝘃𝗲𝗺𝗲𝗻𝘁𝘀 𝗮𝗻𝗱 𝘄𝗶𝘁𝗵𝗼𝘂𝘁 𝗺𝘆 𝗰𝗼𝗹𝗮. 
+  <div id="header" align="center">
+𝗮𝗻𝗱 𝘆𝗲𝘀, 𝘆𝗼𝘂 𝗼𝘄𝗲 𝗺𝗲 𝗳𝗶𝘃𝗲 𝗯𝘂𝗰𝗸𝘀 𝗳𝗼𝗿 𝘁𝗵𝗲 𝗴𝗿𝗲𝗲𝘁𝗶𝗻𝗴 𝗶𝘁𝘀𝗲𝗹𝗳.
 
 ## 𝖺𝖻𝗈𝗎𝗍 𝗆𝖾 !
 <div id="header" align="left">
+
+
+| Фото 1 | Фото 2 |
+|--------|--------|
+| <img src="https://i.yapx.ru/eEzyK.png/200/200"> | <img src="https://placekitten.com/150/150"> |
+
+
+  
 сall me whatever you want.
 𝗺̲𝗮̲𝗿̲𝘂̲ / 𝗺̲𝗮̲𝗹̲𝗲̲𝗺̲𝗮̲𝗿̲𝘂̲ / 𝘇̲𝗼̲𝗺̲𝗯̲𝗲̲𝗵̲ 𝗰̲𝗼̲𝗹̲𝗮̲
 it doesn't matter to me. 
