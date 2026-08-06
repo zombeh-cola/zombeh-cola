@@ -49,6 +49,11 @@
 | **supporter**: i don't help with the limited participant limit in the group or with the slot selection. however, I am always in a group that is limited to certain people in close party. |
 
 <br><br>
+
+|°˖𓍢ִ໋🍃✿°.💚⋆|‧₊ᵎᵎ🍓⋅°✮|
+|--------|--------|
+| <img src="[https://i.yapx.ru/eE1NZ.png](https://i.yapx.ru/eE1W3.png)/50/50"> | <img src="https://i.yapx.ru/eE1NZ.png/50/50"> |
+ </div>
   
 | 🚫 DNI category and trigger warning. |
 |------------------|
