@@ -1,11 +1,11 @@
 # ☭ RED ARMY ARC
 
 <div id="header" align="center">
-<img src="https://64.media.tumblr.com/d439e98a01f43117665fc9e1e25f04da/21686d57823351d2-80/s2048x3072/adbee0c061b55c4452fdc813d876981480f4f37e.pnj"1000"/>
+<img src="https://64.media.tumblr.com/4350c3159ca40916b060283a276973ae/7e14428ec86e4e46-b3/s2048x3072/1314680eca79764637e69264e8c556bf54a69229.pnj"1000"/>
 <div id="header" align="center">
 <img src="https://i.yapx.ru/eEyeA.png></a>"1000"/>
 <div id="header" align="center">
-<img src="https://64.media.tumblr.com/d439e98a01f43117665fc9e1e25f04da/21686d57823351d2-80/s2048x3072/adbee0c061b55c4452fdc813d876981480f4f37e.pnj"1000"/>
+<img src="https://64.media.tumblr.com/a1d3cc94c48642bd05ec7b7d174ad929/7e14428ec86e4e46-b0/s2048x3072/ce4473ce7dcaf812428aab412dab916ae30e0b1a.pnj"1000"/>
   </div>
   <div id="header" align="center">
 𝗵𝗲𝗹𝗹𝗼, 𝗺𝘆 𝗼𝗹𝗱 𝗳𝗿𝗶𝗲𝗻𝗱! 
